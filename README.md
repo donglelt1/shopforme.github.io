@@ -1,2 +1,0 @@
-# shopforme.github.io
-
